@@ -1,0 +1,5 @@
+GodCoin (GOD)
+===========
+
+
+Godspeed!
